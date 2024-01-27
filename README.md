@@ -8,7 +8,7 @@
 
 📫 How to reach me? Feel free to connect with me on (https://www.linkedin.com/in/nataliya-marchenko-5a4173293/)] or drop me an email at [qa.natalia123@gmail.com].
 
-⚡ Fun fact: In my free time, I enjoy participating in hackathons to challenge myself, learn new techniques, and connect with fellow enthusiasts in the tech community.
+
 
 
 
